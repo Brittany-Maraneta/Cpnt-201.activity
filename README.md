@@ -11,4 +11,4 @@
 
 Walking article: (https://www.betterhealth.vic.gov.au/health/healthyliving/walking-for-good-health)
 
-* Have fun and Enjoy *
+Have fun and Enjoy 
