@@ -8,3 +8,5 @@ the wind blowing taking you back.
 1. Proper Shoes
 2. Water
 3. A jacket
+
+Walking article: (https://www.betterhealth.vic.gov.au/health/healthyliving/walking-for-good-health)
